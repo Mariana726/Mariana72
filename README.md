@@ -10,4 +10,5 @@ Bem vindos ao meu perfil 💟💟💟
    dos meus projetos desenvolvidos.
 
    VOCE PODE ENTRAR EM CONATO COMIGO 📫📫
+   
   @00001117455476SP@al.educacao.sp.gov.br
