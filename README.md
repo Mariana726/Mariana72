@@ -1,4 +1,4 @@
-Boas vindos ao meu perfil 💟💟💟
+Bem vindos ao meu perfil 💟💟💟
 
    Meu nome é Mariana dos Santos
    
